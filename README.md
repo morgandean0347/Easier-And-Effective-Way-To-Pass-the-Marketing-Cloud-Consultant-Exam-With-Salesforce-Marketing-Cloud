@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-Marketing-Cloud-Consultant-Exam-With-Salesforce-Marketing-Cloud
